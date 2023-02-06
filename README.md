@@ -1,1 +1,1 @@
-# landing-page-Mercedes [lending](https://miroshairk.github.io/landing-page-Mercedes/)
+# landingpage Mercedes [lending](https://miroshairk.github.io/landing-page-Mercedes/)
